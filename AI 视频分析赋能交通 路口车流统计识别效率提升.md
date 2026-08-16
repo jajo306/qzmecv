@@ -1,0 +1,304 @@
+<a href="https://www.baidu.com/BAIDU?CL=26&WORD=%E5%AE%89%E4%BF%A112%E5%A8%B1%E4%B9%90%E9%BB%91%E9%92%B1(9XK%E7%94%B8CC)
+">AI 视频分析赋能交通 路口车流统计识别效率提升</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%9D%9C%E9%82%A6%E9%A6%96%E9%A1%B5(9XK%E5%9E%ABCC)mdr.html
+">AI 智能能源定制化服务 满足不同用户个性化需求	</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0(9XK%E7%82%B9CC)SDE.html
+">家用扫地机器人湿拖优化 应对夏季地面黏腻污渍</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%81%92%E8%80%80%E5%A8%B1%E4%B9%90%E5%AE%98%E7%BD%91(435.999)qsLp.html
+">城市闲置数码设备回收规范 保护用户个人数据</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%98%9F%E4%BA%BF%E9%A6%96%E9%A1%B5%EF%BB%BF(435999)qNER.html
+">城市夏季野菜辨识科普 很多相似野菜存在毒性</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=V8%E7%BD%91%E5%9D%80(9XK%E5%BA%97CC)dei.html
+">城市城市闲置厂房改造文创园区 激活老旧工业空间</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%96%9C%E4%B9%90%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E5%A8%B1%E4%B9%90(9XK%E7%82%B9CC).L5Z3X
+">城市采煤塌陷区改造湿地公园 生态修复华丽转身</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=19&WORD=%E6%B5%B7%E8%B1%9A%E4%B9%8B%E6%98%9F%E4%B8%BB%E7%AE%A1(9XK%E5%9E%ABCC)
+">儿童近视防控设备更新，监测用眼习惯提醒休息</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%A9%E7%BE%8E3%E5%A8%B1%E4%B9%90%E7%BD%91%E7%AB%99(9XK%E5%9E%ABCC)5qq.html
+">流浪动物 TNR 科学管控城市种群	</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%A9%E7%BE%8E3%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3(9XK%E6%AE%BFCC)t0H.html
+">AI 气象预报模型提升精度，短时极端天气预警更快</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%84%A6%E7%82%B9%E5%A8%B1%E4%B9%90%E7%99%BB%E9%99%86(435.999)qbSf.html
+">灭蚊灯技术升级 物理驱蚊更安全</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%93%9D%E7%8B%AE%E4%BB%A3%E7%90%86(9XK%E5%9E%ABCC)u1I.html
+">二手车线上检测服务普及 降低二手车交易信息差问题</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%AE%89%E4%BF%A114%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0(9XK%E5%BA%97CC)NrK.html
+">灵活就业人群规模增长 线上接单平台服务持续优化</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%96%9C%E4%B9%90%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1(435.999)qeVD.html
+">宠物经济细分发展 老年宠物护理需求增长	</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=AMD%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%EF%BB%BF(435999)q2t7.html
+">城市屋顶花园试点建设 隔热降温营造城市绿洲</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BC%97%E8%85%BE%E5%B9%B3%E5%8F%B0%E4%BB%A3%E7%90%86(435%2F999)qv3K.html
+">工商业光伏改造项目增多 工厂厂房充分开发光伏资源</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%8D%8E%E4%BF%A1%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C(435.999)q8FW.html
+">地质公园研学火热开展 科普地质知识收获亲子家庭</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%A3%8E%E6%9A%B4%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E5%9C%B0%E5%9D%80(9XK%E5%BA%97CC)lFj.html
+">轻露营持续受到大众欢迎 轻量化便携装备更受偏爱</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%AE%89%E4%BF%A18%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1(435%2F999)qbjz.html
+">便携宠物降温马甲上市，缓解宠物户外高温燥热</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%A9%E8%BE%B0%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E6%80%BB%E4%BB%A3(9XK%E7%82%B9CC)obC.html
+">考古盲盒迭代出新，兼顾趣味性与历史科普</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%B2%90%E9%B8%A32%E5%A8%B1%E4%B9%90%E4%BB%A3%E7%90%86(9XK%E5%BA%97CC)da1.html
+">女装行业退货率居高不下，多重市场因素共同导致</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%96%B0%E5%B8%81%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1(9XK%E7%82%B9CC)C6N.html
+">国产独立漫画出版物销量上涨，线下漫画展人气高</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%81%92%E8%BE%BE%E7%99%BB%E9%99%86(9XK%E5%9E%ABCC)CJa.html
+">乡村家用天文望远镜热销 暑期观测星月天文现象</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%98%9F%E4%BA%BF%E5%A8%B1%E4%B9%90%E4%BB%A3%E7%90%86(9XK%E7%94%B8CC)ZWx.html
+">家用充电桩安装政策优化 降低车主安装落地难度</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%91%A9%E6%A0%B9%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C(9XK%E5%BA%97CC)e4v.html
+">国产钙钛矿光伏实验室取得新进展 提升光电转换效率</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%81%A9%E4%BD%902%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7(9XK%E7%94%B8CC)MG4.html
+">再生艺术创作走红 废旧材料加工创意艺术作品</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%AF%8C%E8%BE%BE%E5%A8%B1%E4%B9%90%E4%BB%A3%E7%90%86(435.999)qu1I.html
+">农产品溯源 扫码查看生产全过程</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%B2%90%E9%B8%A32%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C(9XK%E6%AE%BFCC)HlF.html
+">山地避暑线路预订走高 避暑游带动山区乡村经济发展</a><br>
+<a href="https://so.sina.cn/search/list.d.html?keyword=%E9%A3%8E%E6%9A%B4%E6%B3%A8%E5%86%8C%E5%BC%80%E6%88%B7%20%20(435.999)q6Nu.html
+">城市立体绿化持续增加 墙面屋顶绿植降低室温</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=21&WORD=%E5%8F%AF%E4%B9%90%E7%99%BB%E5%BD%95%EF%BB%BF(435999)q
+">混动车型市场占比持续提升 兼顾续航表现与用车经济性</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%BD%A9%E4%BF%A1%E8%AA%89%E5%B9%B3%E5%8F%B0(9XK%E5%BA%97CC)ggh.html
+">AI 虚拟员工赋能办公 重复性工作处理效率提升	</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%BC%8E%E6%B1%87%E5%A8%B1%E4%B9%90%E7%99%BB%E5%BD%95%E7%BD%91%E5%9D%80(9XK%E7%82%B9CC)Gnu.html
+">县域汽车消费市场观察 下沉市场消费潜力持续释放</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%B2%B3%E5%86%85%E4%BA%94%E5%88%86%E5%BD%A9%E5%80%8D%E6%8A%95%E6%96%B9%E6%A1%88(9XK%E5%9E%ABCC)F9x.html
+">家居出租改造走红，低成本软装提升租住体验</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%BD%A9%E5%A6%82%E4%BD%95%E7%9C%8B%E5%8F%B7(9XK%E7%94%B8CC)fWk.html
+">储能消防产品迭代升级 有效抑制电池热扩散相关风险</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%8D%A7%E9%BE%99%E6%80%BB%E4%BB%A3%EF%BB%BF(435999)qE1c.html
+">跨境气象信息共享，提升台风暴雨预警处置能力</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%81%A9%E5%8D%9A3%E5%A8%B1%E4%B9%90%E8%AE%A1%E5%88%92(9XK%E7%82%B9CC)cMN.html
+">消费级人形机器人新品集中亮相 家庭服务场景落地提速</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%9B%B7%E7%A5%9E%E5%B9%B3%E5%8F%B0(435%2F999)qhRS.html
+">新式茶饮下沉县域市场 平价门店布局三四线城市</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%81%92%E6%82%A6%E5%A8%B1%E4%B9%90%E7%BD%91%E7%AB%99(9XK%E5%9E%ABCC)qBP.html
+">海边赶海成为亲子休闲项目，安全提示同步发布</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%AF%8C%E8%BE%BE%E7%BD%91%E7%AB%99(435.999)qmD3.html
+">扫地机器人增加湿拖模式，适配夏天地面黏腻污渍</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%96%B0%E5%B8%81%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7(9XK%E7%82%B9CC)abe.html
+">无线降噪耳机新品迭代，续航降噪表现持续进步</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%A9%E4%B9%9D%E5%A8%B1%E4%B9%90%E5%BE%85%E9%81%87%EF%BB%BF(435999)qNOR.html
+">老年智能手环新增跌倒识别功能 守护居家老人安全</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%BD%A9%E7%9B%88%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E6%80%BB%E4%BB%A3%E7%90%86(9XK%E5%BA%97CC)lvF.html
+">算法工程师薪酬上限远超运营岗位数倍</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%A9%E8%BE%B0%E5%BC%80%E6%88%B7(9XK%E6%AE%BFCC)aiy.html
+">农产品溯源系统普及，扫码查看完整生产流程</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%9A%87%E9%A9%AC%E4%B8%BB%E7%AE%A1%E6%98%AF%E8%B0%81(9XK%E5%BA%97CC)rBp.html
+">城市露营驱蚊产品升级 兼顾效果与低刺激配方</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%80%80%E4%B8%96%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E7%BD%91%E5%9D%80(435%2F999)qlnt.html
+">大学生暑期兼职市场火热 平台发布多项防骗提示</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%BE%89%E8%BE%BE%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%E7%90%86%EF%BB%BF(435999)qUz0.html
+">虚拟电厂聚合能力提升 电网柔性调节资源丰富	</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%84%8F%E6%98%823%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86(9XK%E7%82%B9CC)WMa.html
+">算力网络建设持续推进 跨区域算力调度能力得到增强</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%91%A9%E8%87%A3%E4%B8%BB%E7%AE%A1(435%2F999)qbMM.html
+">国产青少年心理健康科普宣传 关注暑期心理状态</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%B2%90%E9%B8%A32%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E5%BC%80%E6%88%B7(9XK%E7%94%B8CC)t0H.html
+">智能车灯技术迭代升级 有效提升夜间行车安全水平</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%84%8F%E6%98%82F%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E7%BD%91%E5%9D%80(9XK%E7%82%B9CC)2nH.html
+">乡村线上副业大量骗局 不要轻信躺赚暴富宣传</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%80%80%E4%B8%96%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%EF%BB%BF(435999)qovC.html
+">海外建厂步伐持续加快 国产车企布局海外生产制造基地</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=V8%E5%A8%B1%E4%B9%90%E9%A6%96%E9%A1%B5(9XK%E5%9E%ABCC)1lm.html
+">乡村老年人智能设备培训进社区 学会智能手机</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%AE%89%E4%BF%A114%E5%A8%B1%E4%B9%90%E5%BC%80%E6%88%B7(435%2F999)qgXl.html
+">钙钛矿光伏技术研发进展 实验室转换效率再创新高</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%81%92%E7%9B%9B%E5%B9%B3%E5%8F%B0%E5%94%AF%E4%B8%80%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80(9XK%E6%AE%BFCC)bVJ.html
+">高速充电桩覆盖率提升 长途出行补能更便捷	</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%AC%A7%E9%99%86%E5%A8%B1%E4%B9%90%E7%BA%BF%E8%B7%AF(9XK%E7%94%B8CC)JKN.html
+">国产花卉新品种培育成功，切花成本进一步下降</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%BC%8E%E6%B1%87%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C(9XK%E5%9E%ABCC)tma.html
+">夏季水果丰产上市 蓝莓莲蓬等应季农产品热销</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%84%8F%E6%98%823%E6%B3%A8%E5%86%8C%E5%BC%80%E6%88%B7(9XK%E7%94%B8CC)g71.html
+">电解质水需求增长 高温天气功能饮料热销	</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A5%87%E4%BA%BF%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%9C%B0%E5%9D%80(9XK%E7%94%B8CC)7Ll.html
+">新能源车充电安全规范 日常使用规避风险	</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%81%92%E7%9B%9B%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%B3%A8%E5%86%8C(435%2F999)q08O.html
+">睡眠经济市场规模扩大 助眠家居产品销量走高</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BB%B2%E5%8D%9A%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7%EF%BB%BF(435999)q67B.html
+">AI 音频降噪与合成技术升级 自媒体配音成本大幅降低</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%98%86%E4%BB%91%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E5%BC%80%E6%88%B7%EF%BB%BF(435999)qUfW.html
+">新能源汽车低温性能测试 低温续航损耗受到关注</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%AF%8C%E9%80%94%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7(435.999)q1bI.html
+">乡村 AI 地震监测辅助系统 提升地震信息研判速度</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%95%BF%E5%BE%81%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7(9XK%E5%BA%97CC)Stn.html
+">城市沙滩浴场开放暑期场次 增加救生人员巡逻</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%AE%89%E4%BF%A110%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3(9XK%E6%AE%BFCC)QAB.html
+">携程因垄断行为收到巨额行政处罚</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%98%9F%E6%AC%A7%E5%A8%B1%E4%B9%90%E6%8B%9B%E5%95%86(9XK%E5%BA%97CC)lcp.html
+">水产小龙虾消费旺季尾声，加工调味产品持续热销</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%91%A9%E6%9D%B0%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7(9XK%E6%AE%BFCC)Els.html
+">乡村儿童近视防控设备更新 监测用眼习惯提醒休息</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%A4%A9%E9%A1%BA%E8%82%A1%E4%B8%9C(435%2F999)q.RvPtN
+">零食小包装 控量健康消费成趋势</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%96%B0%E5%8D%9A%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1(9XK%E5%BA%97CC).3X1Vz
+">城市宠物公园扩建，增设饮水点遮阳棚沙坑设施</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%BD%A9%E5%B9%B3%E5%8F%B0(9XK%E5%9E%ABCC).0UySw
+">新式茶饮推多款消暑新品，果蔬茶饮成为主流</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%AE%89%E4%BF%A19%E5%A8%B1%E4%B9%90%E7%99%BB%E5%BD%95(435.999)q.vf9d7
+">夏季肠胃不适 冷饮过量危害健康	</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=AG%E6%A9%AB%E5%B3%B0%E9%9B%86%E5%9B%A2%E5%A8%B1%E4%B9%90(9XK%E7%94%B8CC).GkEiC
+">AI 智能矿山监测系统 矿山安全生产保障能力增强	</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%BC%8E%E6%B1%873%E5%A8%B1%E4%B9%90%E5%BC%80%E6%88%B7%EF%BB%BF(435999)q.7rLpJ
+">AI 智能能源长效化机制 产业可持续发展能力增强	</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E7%BA%A2%E6%A1%83%E5%A8%B1%E4%B9%90%E8%AE%A1%E5%88%92(9XK%E5%BA%97CC).UySwQ
+">乡村社区食堂持续建设 面向居民提供平价便民餐食</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E4%BA%9A%E5%8D%9A%E7%94%B5%E7%AB%9E%E7%BD%91%E9%A1%B5%E7%89%88(9XK%E7%94%B8CC).mW0Uy
+">大码服饰赛道持续扩张，更多款式覆盖多元身材</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%9B%9B%E6%96%B9%E5%A8%B1%E4%B9%90%E6%8B%9B%E5%95%86(435.999)q.ZJnHl
+">绿证交易市场活跃 企业碳中和目标加速实现</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E4%BA%AC%E8%BE%B0%E5%A8%B1%E4%B9%90%E7%99%BB%E5%85%A5(9XK%E7%82%B9CC).18sMK
+">长沙南站上线湘超联赛观赛专属出行服务</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%91%AB%E8%BE%BE%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0(9XK%E7%82%B9CC).3X1Vz
+">国产海洋保护科普开展 提升公众海洋生态意识</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E8%B5%A2%E5%92%965%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95(9XK%E7%94%B8CC).UySwQ
+">风光项目生态保护加强 开发建设兼顾生态环境</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%8D%8E%E6%B6%A62%E5%A8%B1%E4%B9%90%E5%AE%98%E7%BD%91(9XK%E5%9E%ABCC).3X1Vz
+">瓶装电解质水销量攀升，高温带动运动饮料消费</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%BE%AE%E4%BF%A1%E6%89%AB%E7%A0%81%E5%8A%A0%E6%8B%BF%E5%A4%A728%E7%BE%A4(435%2F999)q.YImGE
+">电网侧储能规模化投运 电力保供能力显著增强	</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%B1%87%E5%AF%8C%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3(9XK%E5%9E%ABCC).mGkEi
+">家用充电桩安装政策优化 降低车主安装落地难度</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%A4%A9%E7%BE%8E3%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E5%BC%80%E6%88%B7(435%2F999)q.TDhBf
+">钠离子电池量产提速，储能低速车领域率先应用</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%98%9F%E7%90%83%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1(9XK%E7%82%B9CC).hBf9d
+">AI 初创企业融资趋势 技术落地能力成资本关注重点</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%95%BF%E5%BE%81%E5%BC%80%E6%88%B7(9XK%E5%9E%ABCC).G0UyS
+">城市自行车头盔颜值提升 更多年轻人愿意佩戴</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%81%92%E8%A1%8C6%E7%9B%B4%E5%B1%9E(435.999)q.ue8c6
+">城市后备箱集市开放 年轻人低成本创业新渠道</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%96%B0%E8%88%AA%E6%8B%9B%E5%95%86(435.999)q.MqKoI
+">中式糕点出海，传统点心收获海外消费者好评</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%97%A8%E5%BE%92%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E4%B8%BB%E7%AE%A1(9XK%E5%9E%ABCC).3X1zT
+">少年儿童防晒服饰品类丰富，兼顾好看防护性能</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%9E%81%E6%82%A6%E5%A8%B1%E4%B9%90%E5%9C%A8%E7%BA%BF%EF%BB%BF(435999)q.FzTxR
+">共享储能运营成熟 电网调峰能力得到增强	</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%98%9F%E8%BE%89%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E4%BB%A3%E7%90%86(9XK%E5%9E%ABCC).5CwQu
+">宠物便便箱 文明养宠更贴心</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%8F%8C%E8%B5%A2%E5%A8%B1%E4%B9%90(435.999)q.YImGk
+">凉感床品销量爆发，冰丝乳胶凉席成为夏日刚需</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%B2%90%E9%B8%A32%E7%99%BB%E9%99%86(9XK%E5%9E%ABCC).ImkEi
+">国产乡村闲置物品流转集市 激活农村闲置生活用品</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%BC%8E%E6%B1%87%E4%B8%BB%E7%AE%A1%EF%BB%BF(435999)q.7b5Z3
+">工业 AI 设备预测性维护普及 工厂停机故障发生率显著下降	</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%89%E7%89%9B%E6%8B%9B%E5%95%86%EF%BB%BF(435999)qULZ.html
+">空调清洗科普宣传，每年换季清洗滤网更健康</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%93%9D%E5%9B%BE%E5%A8%B1%E4%B9%90app(435.999)qtGX.html
+">高速服务区打造露营综合体 丰富自驾出行体验</a><br>
+<a href="https://so.sina.cn/search/list.d.html?keyword=%E5%8D%8E%E6%B6%A62%E5%A8%B1%E4%B9%90%E5%9C%A8%E7%BA%BF(9XK%E5%9E%ABCC)DK4.html
+">国货运动服饰海外扩张 高性价比打开海外消费销路</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E7%8E%A9%E5%AE%B6%E6%97%B6%E4%BB%A32%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95(9XK%E7%82%B9CC).JnHlF
+">居家中暑急救科普 高温居家环境同样存在中暑风险</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%81%92%E8%A1%8C3%E5%A8%B1%E4%B9%90%E6%80%8E%E4%B9%88%E6%A0%B7(9XK%E5%BA%97CC).Ae8c6
+">AI 绘画赋能插画行业 画师借助 AI 提升创作效率</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%B2%90%E9%B8%A32%E5%B9%B3%E5%8F%B0%EF%BB%BF(435999)q.N7b5Z
+">AI 智能能源全要素配置优化 资源利用效率最大化	</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%81%92%E8%A1%8C6%E5%A8%B1%E4%B9%90%E7%99%BB%E9%99%86(9XK%E7%82%B9CC).FjDhB
+">AI 智能能源全要素人才支撑 创新发展根基更牢固	</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%8E%A8%E8%8D%90%E4%B8%80%E4%B8%AANBA%E4%B9%B0%E7%90%83%E7%BD%91%E7%AB%99(435.999)q.SwQuO
+">家用智能门锁优化高温稳定性 夏季运行更加稳定可靠</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E7%99%BE%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95(435.999)q.0ySwQ
+">家用宠物冻干零食消费上涨 不能替代主粮饲喂</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%AE%89%E4%BF%A115%E5%A8%B1%E4%B9%90%E7%99%BB%E5%BD%95%E7%BD%91%E5%9D%80(9XK%E5%BA%97CC).hBf9d
+">折叠家具走红 租房人群需求旺盛</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%AE%89%E4%BF%A113%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7(435%2F999)q.HlFjD
+">家庭出行保险科普，短途出游配置合适出行保障</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%A1%BA%E7%9B%88%E7%99%BB%E5%BD%95(435.999)q.AuOsM
+">户外防晒服饰市场扩容 国货品牌占据主要市场份额</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%81%92%E8%A1%8C%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C(9XK%E5%9E%ABCC).KoImG
+">多地开展老旧小区适老化改造 惠及数十万居民家庭</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%9B%9B%E6%96%B9%E5%A8%B1%E4%B9%90%E4%BB%A3%E7%90%86%EF%BB%BF(435999)q.dNrLp
+">餐饮消费券拉动夜市商圈，线下到店消费回暖</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%91%A9%E6%9D%B0%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1%EF%BB%BF(435999)q.9tNrL
+">采煤塌陷区改造湿地公园 生态修复实现华丽转身</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%9D%8F%E5%AE%872%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3(9XK%E5%BA%97CC).oImGk
+">户用储能安全标准升级 家庭应急供电更有保障	</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%8B%89%E8%8F%B29%E5%A8%B1%E4%B9%90%E5%9C%A8%E7%BA%BF(9XK%E6%AE%BFCC).xRvPt
+">城市无障碍设施持续完善 便利特殊群体出行游玩</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E8%B5%A2%E5%92%962%E4%B8%87%E6%B3%B0%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80%EF%BB%BF(435999)q.W0UyS
+">家庭急救科普培训走进社区 学习基础急救相关技能</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%90%88%E6%99%AF2%E5%8D%9A%E9%87%91%E5%A8%B1%E4%B9%90%E5%A5%96%E9%87%91(9XK%E7%82%B9CC).jDhBf
+">国产家庭亲子手工体验火爆 提升高质量陪伴时光</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%88%86%E5%88%86%E5%BD%A9%E9%BE%99%E8%99%8E%E6%9C%89%E8%A7%84%E5%BE%8B%E5%90%97%20%20(435%2F999)q.qKoIm
+">AI 图像识别技术赋能文博 文物修复辅助效率提升</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%8D%9A%E5%B8%8C%E5%A8%B1%E4%B9%90%E5%A5%BD%E5%90%97(9XK%E5%9E%ABCC).VySQu
+">共享储能模式落地多地 提升电网资源利用效率</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%81%92%E7%85%8A%E4%BB%A3%E7%90%86(9XK%E5%9E%ABCC).VFjDh
+">租房市场暑期迎来换房高峰，毕业生租房需求释放</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%91%A9%E7%99%BB7%E5%9C%B0%E5%9D%80(435%2F999)q.yiCgA
+">河湖游玩垃圾治理提示 不在水体周边丢弃各类垃圾</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%AC%A7%E4%BA%BF7%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3(435.999)q.7rLpJ
+">轻食简餐普及 上班族快速就餐需求</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%9D%8F%E5%BD%A9%E5%A8%B1%E4%B9%90(9XK%E7%82%B9CC).MqKoI
+">多汗夏季皮肤问题高发，皮肤科门诊接诊量上升</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%B9%B8%E8%BF%90%E6%B2%B3%E5%86%85%E4%BA%94%E5%88%86%E5%BD%A9%E5%AE%9A%E4%BD%8D%E8%83%86(9XK%E7%94%B8CC).4oImG
+">乡村播客节目听众持续增长 生活科普类受欢迎</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%87%91%E6%B5%B7%E5%B2%B8%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1(9XK%E5%9E%ABCC).sc6Z3
+">夏季皮肤病高发 湿热环境防护指南	</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E4%BC%98%E8%B4%9D%E4%BB%A3%E7%90%86(435.999)q.EiCgA
+">家用宠物梳毛工具更新 应对夏季宠物大量掉毛</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%96%B0%E5%9F%8E%E5%A8%B1%E4%B9%90%E5%92%A8%E8%AF%A2(9XK%E6%AE%BFCC).TDhBf
+">城市口袋公园加快建设 全年新增多处市民休闲绿地</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E8%93%9D%E5%9B%BE%E5%A8%B1%E4%B9%90%EF%BB%BF(435999)q.N7b5Z
+">国产 AI 技术出海 大模型服务面向海外企业开放</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E4%B8%87%E5%90%91%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%E7%90%86(435%2F999)q.M6a4Y
+">县域汽车消费市场观察 下沉市场潜力持续释放</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%B1%87%E5%AF%8C%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91%EF%BB%BF(435999)q.EiCgA
+">国产出境游暑期迎来高峰 旅行社发布出行安全提示</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%81%92%E7%9B%9B%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86(9XK%E7%94%B8CC).CAe8c
+">农光互补项目稳步落地 光伏发电兼顾农业生产</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%AF%8C%E8%81%94%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E4%B8%BB%E7%AE%A1(9XK%E5%9E%ABCC).td7b5
+">农产品溯源 扫码查看生产全过程</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%AE%89%E4%BF%A115%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E4%B8%BB%E7%AE%A1(9XK%E5%9E%ABCC).TxRvP
+">社区花园共建 市民参与绿化建设</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%BD%A9%E7%9B%88%E5%A8%B1%E4%B9%90%E5%AE%98%E7%BD%91(9XK%E5%BA%97CC).eOsMq
+">海外汽车市场调研 国产车型获得海外用户认可</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%8F%8C%E8%B5%A2%E9%A6%96%E9%A1%B5%EF%BB%BF(435999)q.0kEiC
+">人行道遮阳 夏季出行更舒适</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%AF%8C%E9%82%A6%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1(9XK%E5%9E%ABCC).kiCgA
+">鸟类宠物防暑要点 鸟笼摆放避免阳光直接进行暴晒</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%98%9F%E4%BA%BF%E6%80%BB%E4%BB%A3%EF%BB%BF(435999)q.bLpJn
+">农光互补渔光互补模式对比 不同模式收益优势解析</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E7%99%BE%E5%A8%81%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%E7%90%86(9XK%E5%9E%ABCC).VFjDh
+">储能项目招投标市场观察 成本与安全成为评审核心重点</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%8D%9A%E6%82%A6%E5%B9%B3%E5%8F%B0(9XK%E5%9E%ABCC).iCgAe
+">二手图书交易规模上涨 旧书循环阅读受到欢迎</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%96%B0%E5%8D%9A2%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C(435%2F999)q.3X1Vy
+">AI 隐私计算技术加速落地 实现数据可用不可见应用效果</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%87%91%E6%B4%8B6%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E8%82%A1%E4%B8%9C%EF%BB%BF(435999)q.zjDhB
+">新式茶饮下沉市场 平价门店覆盖三四线城市	</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%A4%A9%E8%BE%B0%E7%BD%91%E5%9D%80(9XK%E7%82%B9CC).W0UyS
+">AI 视频工具功能不断更新 降低中小企业内容生产门槛</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%8D%A7%E9%BE%99%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C(9XK%E7%82%B9CC).9tNrK
+">AI 招聘工具广泛使用，企业筛选简历效率提升</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%97%A8%E5%BE%92%E5%B9%B3%E5%8F%B0(9XK%E5%BA%97CC).nHljD
+">便携式储能产品功能升级 户外与应急场景需求旺盛</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%AF%8C%E9%82%A6%E5%A8%B1%E4%B9%90%E5%BC%80%E5%A5%96(435.999)q.OsMqK
+">高温药品储存 冷藏要求科普提示</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%87%91%E6%B4%8B5%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1%EF%BB%BF(435999)q.sMqKo
+">文创园夜间经济 市民晚间休闲新选择</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%98%9F%E6%AC%A7%E4%BB%A3%E7%90%86(9XK%E5%9E%ABCC).DhBf9
+">乡村环卫一线保障防暑降温 调整户外作业排班</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%AE%9D%E5%8D%9A%E4%B8%BB%E7%AE%A1(9XK%E7%82%B9CC).jDhf9
+">灵活就业群体规模扩大，线上接单平台持续完善</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%A4%A9%E7%BE%8E%E4%BB%A3%E7%90%86%EF%BB%BF(435999)q.QuOsM
+">城市宠物公园扩建，增设饮水点遮阳棚沙坑设施</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%8D%9A%E5%B8%8C%E4%B8%BB%E7%AE%A1(9XK%E5%BA%97CC).YImGk
+">鲜花订阅模式普及，日常鲜花消费走进普通家庭</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%90%88%E6%99%AF2%E5%8D%9A%E9%87%91%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1%EF%BB%BF(435999)q.7rLpJ
+">AI 交通流量分析系统 城市道路拥堵治理更科学</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=pg%E7%8B%AC%E8%A7%92%E5%85%BD%E8%8F%B2%E5%B0%BC%E5%85%8B%E6%96%AFpg%E5%AE%98%E7%BD%91APP%E9%82%A3%E4%B8%AA%E5%A5%BD%E7%94%B5%E5%AD%90%E7%89%88(435%2F999)q.gPtNr
+">AI 视频分析赋能交通管理 路口车流统计识别效率得到提升</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E4%B8%87%E4%BA%8B%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E6%B5%8B%E9%80%9F(435.999)q.gAe8c
+">地方特色方便速食走红，把地域美食搬上餐桌</a>热点新闻<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BC%98%E4%BA%BF2%E4%B8%BB%E7%AE%A1(9XK%E7%82%B9CC)ikq.html
+">国产儿童友好城市持续建设 增加公共游乐空间</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%89%9B%E7%89%9B%E7%BB%8F%E5%85%B8app%E4%B8%8B%E8%BD%BD%EF%BB%BF(435999)qkll.html
+">家用台式净饮机迭代升级 即热饮水适配家庭需求</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=15&WORD=%E5%8A%A0%E6%8B%BF%E5%A4%A728%E7%BE%A4%E5%93%AA%E9%87%8C%E6%9C%89(435.999)q
+">儿童平衡车赛事遍地开花，亲子体育消费持续释放</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=60&WORD=%E5%85%88%E9%94%8B%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1(9XK%E7%94%B8CC)
+">AI 居家健身指导普及 全民科学健身氛围更浓厚	</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=75&WORD=%E5%8D%8E%E6%B6%A62%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E5%BE%85%E9%81%87(9XK%E6%AE%BFCC)
+">家用灭蚊产品安全科普 使用驱蚊产品做好通风防护</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=65&WORD=%E6%BE%B3%E6%B4%B2%E5%B9%B8%E8%BF%9010%E5%85%AC%E4%BC%97%E5%8F%B7%E4%BF%A1%E8%AA%89%E5%B9%B3%E5%8F%B0(9XK%E7%94%B8CC)
+">城市夜间公交增加班次 适配夜市晚归市民出行需求</a>热点新闻<a href="https://so.sina.cn/search/list.d.html?keyword=%E8%B1%AA%E9%97%A8%E5%A8%B1%E4%B9%90%E6%8C%82%E6%9C%BA(9XK%E7%94%B8CC)1Ip.html
+">AI 翻译工具语种持续扩充 跨境沟通成本持续下降</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%A9%E5%90%AF%E5%A8%B1%E4%B9%90%E4%B8%8B%E8%BD%BD(9XK%E6%AE%BFCC)Auv.html
+">智慧健身平台加速落地，实现预约监测指导一体化服务</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=22&WORD=%E9%80%9F%E7%9B%88%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95(9XK%E6%AE%BFCC)
+">赵今麦古装新剧路透流出，古风造型收获好评</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=88&WORD=%E8%B5%A2%E5%92%96%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%BD%91%E5%9D%80(9XK%E5%9E%ABCC)
+">儿童户外安全 规避动植物伤害</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=71&WORD=%E6%98%9F%E6%AC%A7%E5%9C%A8%E7%BA%BF%E5%BC%80%E6%88%B7(9XK%E7%82%B9CC)
+">后厨透明直播越来越多，消费者线上查看后厨情况</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=51&WORD=%E5%A4%A9%E4%B9%9D%E5%A8%B1%E4%B9%90%E7%99%BB%E5%85%A5(9XK%E7%82%B9CC)
+">光伏品牌出海竞争加剧 国内企业抢占海外份额</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=14&WORD=%E5%A4%A9%E7%81%AB3%E5%B9%B3%E5%8F%B0%E4%BB%A3%E7%90%86(9XK%E6%AE%BFCC)
+">海洋馆推出暑期研学课程 面向中小学生开展科普</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=32&WORD=%E5%A4%A9%E8%BE%B0%E5%A8%B1%E4%B9%90%E7%BD%91%E7%AB%99(9XK%E7%82%B9CC)
+">具身智能技术快速发展，机器人看懂环境完成任务</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=12&WORD=%E5%AF%8C%E8%81%94%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86(9XK%E7%82%B9CC)
+">国产国际动漫展国内举办 多国创作者同台交流</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=67&WORD=%E8%80%80%E4%B8%96%E7%BD%91%E5%9D%80(9XK%E5%9E%ABCC)
+">城市分布式光伏走进农村民居 农户屋顶产出绿电</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=06&WORD=%E8%93%9D%E5%86%A0%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1%EF%BB%BF(435999)q
+">夜市小吃加强食品安全抽检，守护街边美食安全</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=31&WORD=%E4%BA%AC%E8%BE%B0%E6%B3%A8%E5%86%8C(435%2F999)q
+">分布式风电试点逐步开展 靠近用户侧就近发电</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=66&WORD=%E6%84%8F%E6%98%82F%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86(9XK%E5%BA%97CC)
+">宠物驱虫夏季 科学频率把控技巧</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=23&WORD=%E5%AF%8C%E8%81%94%E5%B9%B3%E5%8F%B0(9XK%E5%BA%97CC)
+">夏季鱼缸换水科普 频繁换水容易损伤观赏鱼</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=55&WORD=%E6%98%9F%E4%BA%BF%E7%9B%B4%E5%B1%9E%EF%BB%BF(435999)q
+">大模型成本持续下探 中小商家也可接入 AI 能力</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=43&WORD=%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E4%B8%BB%E7%AE%A1(9XK%E6%AE%BFCC)
+">老旧小区适老化改造 老年生活更便利	</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=42&WORD=%E5%AF%8C%E8%81%94%E5%BE%85%E9%81%87(9XK%E7%94%B8CC)
+">城市城市职业体验夏令营 模拟各行各业工作</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=53&WORD=%E8%93%9D%E5%9B%BE%E5%A8%B1%E4%B9%90%E5%AE%98%E7%BD%91(9XK%E6%AE%BFCC)
+">儿童冷饮食用提醒 大量吃冰容易刺激肠胃引发不适</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=45&WORD=%E6%9D%8F%E5%BD%A9%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%AE%98%E7%BD%91(9XK%E7%82%B9CC)
+">乡村适老化 APP 优化界面 大字体简化操作</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=61&WORD=%E5%AE%89%E4%BF%A110%E4%B8%BB%E7%AE%A1(9XK%E7%82%B9CC)
+">国产高铁站宠物托运服务优化 方便带宠长途出行</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=81&WORD=%E9%A1%BA%E7%9B%88%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7%20%20(9XK%E7%94%B8CC)
+">火车站提升暑运服务，增设候车座椅饮水点位</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=40&WORD=%E8%AE%A1%E5%88%92%E4%B9%8B%E5%AE%B6%20%EF%BC%8C(9XK%E5%9E%ABCC)
+">AI 伦理治理体系加快构建 技术发展与社会治理协同共进	</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=98&WORD=%E5%A5%87%E4%BA%BF%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%20%20(435.999)q
+">青少年游泳培训市场火热 机构安全教学成为关注重点</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=33&WORD=%E5%8F%8C%E8%B5%A2%E5%A8%B1%E4%B9%90%E5%92%A8%E8%AF%A2(9XK%E5%BA%97CC)
+">无障碍文旅设施 残障群体出行更便利</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=53&WORD=%E6%81%92%E5%BD%A9%E6%8B%9B%E5%95%86(9XK%E6%AE%BFCC)
+">家庭阳台雨水排水科普，暴雨防止阳台积水倒灌</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=34&WORD=%E6%84%8F%E6%98%82F%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C(435.999)q
+">大模型垂直行业深度适配 细分领域解决方案更贴合需求	</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=71&WORD=%E6%84%8F%E6%98%823%E5%A8%B1%E4%B9%90%E5%9C%A8%E7%BA%BF%EF%BB%BF(435999)q
+">AI 测绘技术投入实际应用 地理信息采集工作效率大幅提高</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=07&WORD=%E6%96%B0%E5%8D%9A2%E5%A8%B1%E4%B9%90%E9%BB%91%E9%92%B1(9XK%E6%AE%BFCC)
+">星空露营地规范运营管理 强化山野无痕环保理念宣传</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=77&WORD=%E5%82%B2%E4%B8%96%E7%9A%87%E6%9C%9D%E5%B9%B3%E5%8F%B0%E6%80%BB%E4%BB%A3(9XK%E7%82%B9CC)
+">飞盘运动热度平稳，俱乐部主打社群休闲玩法</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=41&WORD=%E9%87%91%E6%B4%8B5%E5%A8%B1%E4%B9%90%E5%AE%98%E7%BD%91(9XK%E5%9E%ABCC)
+">教育 AI 个性化教学落地 优质教育资源均衡化推进	</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=56&WORD=%E6%81%92%E8%BE%BE%E5%B9%B3%E5%8F%B0%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%E6%80%BB%E4%BB%A3%E7%90%86%EF%BB%BF(435999)q
+">AI 行业人才梯队建设加速 校企协同培育专业技术人才	</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=42&WORD=UB8%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7(435%2F999)q
+">乡村儿童夏季过敏科普 花粉尘螨食物过敏做好防护</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=63&WORD=%E9%A3%8E%E6%9A%B4%E5%A8%B1%E4%B9%90%E6%8B%9B%E5%95%86(9XK%E7%94%B8CC)
+">老城街巷微更新，保留烟火气息改善基础设施</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=23&WORD=%E7%99%BE%E4%BA%8B2%E6%B3%A8%E5%86%8C%E6%98%AF%E8%B0%81%EF%BB%BF(435999)q
+">生成式 AI 监管持续收紧 企业开展 AI 业务合规要点梳理</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=85&WORD=%E5%BD%A9%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E6%80%BB%E4%BB%A3%E7%90%86(9XK%E5%BA%97CC)
+">国产车型海外口碑提升 国际市场认可度提高</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=53&WORD=%E6%BE%B3%E6%B4%B2%E5%B9%B8%E8%BF%905%E6%B3%A8%E5%86%8C%E7%BD%91%E5%9D%80(9XK%E6%AE%BFCC)
+">城市口袋公园持续建设，居民家门口休闲空间增加</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=09&WORD=%E7%84%A6%E7%82%B9%E5%A8%B1%E4%B9%90%E5%A5%96%E9%87%91(9XK%E7%82%B9CC)
+">生成式 AI 安全规范落地 防范深度伪造带来各类风险</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=90&WORD=%E7%99%BE%E4%BA%8B3%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C(435.999)q
+">国产人工智能伦理科普进校园 引导青少年理性使用</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=53&WORD=%E8%81%9A%E8%B1%AA%E5%A8%B1%E4%B9%90%E8%82%A1%E4%B8%9C(9XK%E7%94%B8CC)
+">轻量化徒步背包迭代，减重设计降低出行负担</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=58&WORD=%E6%8B%89%E8%8F%B29%E6%8B%9B%E5%95%86(9XK%E6%AE%BFCC)
+">后备箱集市规范 城市多元消费场景丰富</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=54&WORD=%E7%99%BE%E4%BA%8B2%E5%A8%B1%E4%B9%90%E5%9C%B0%E5%9D%80(9XK%E5%BA%97CC)
+">楼顶屋顶隔热改造，降低顶楼房屋室内温度</a><br>
+<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%A3%8E%E6%9A%B4%E5%A8%B1%E4%B9%90%E8%80%81%E6%9D%BF(435.999)q.3X1Vz
+">城市阳台鼓励种植本土花草 助力本土昆虫生存繁衍</a>热点新闻<a href="https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%81%A9%E5%8D%9A3%E5%A8%B1%E4%B9%90%E5%A5%96%E9%87%91(9XK%E7%94%B8CC).1VzTx
+">乡村太空光伏电站开展地面验证 探索太空发电</a><br>
+<a href="http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%8A%A2%E5%BA%84%E7%89%9B%E7%89%9B%E5%A4%A7%E5%85%A8%EF%BB%BF(435999)qRZp.html
+">国产调味品推出创新口味 适配年轻消费群体喜好</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=91&WORD=%E5%AE%89%E4%BF%A111%E5%A8%B1%E4%B9%90%E6%B8%B8%E6%88%8F(9XK%E7%94%B8CC)
+">AI 数字人直播带货常态化 电商营销模式迎来全新变革	</a><br>
+<a href="https://www.baidu.com/BAIDU?CL=89&WORD=%E6%84%8F%E6%98%822%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E8%80%81%E6%9D%BF(9XK%E5%BA%97CC)
+">城市城市轮渡通勤叠加观光 低成本欣赏江景风光</a>热点新闻<a href="https://www.baidu.com/BAIDU?CL=36&WORD=%E5%AE%89%E4%BF%A115%E6%B3%A8%E5%86%8C%EF%BB%BF(435999)q
+">城市雨水花园项目落地 兼顾景观与海绵城市功能</a><br>
+
+
+
+<a href="{随机外?
